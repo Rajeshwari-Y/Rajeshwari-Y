@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rajeshwari-Y
+- 👋 Hi, I’m @Rajeshwari
 
 
 <!---
